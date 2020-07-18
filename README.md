@@ -1,1 +1,1 @@
-Dr. Du Online Application
+Dr. Du Online Application Stub
